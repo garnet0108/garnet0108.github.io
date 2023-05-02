@@ -1,1 +1,0 @@
-# garnet0108.github.io
